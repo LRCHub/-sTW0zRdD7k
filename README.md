@@ -1,4 +1,4 @@
-# Tani Yuuki – もう一度
+# Tani Yuuki – もう一度 (album ver.)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
